@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pancakeswap trading bot with automatic pancakeswap trading bot Addon | multi-chain-support + sandwich-attack-protection. Featuring multi-chain-support and
 
 
 
